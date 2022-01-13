@@ -1,1 +1,2 @@
-# t-nh-chuy-n-t-ng-lai
+thinking about the future
+tính chuyện tương lai
